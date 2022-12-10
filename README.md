@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @guinegreiros
+- 👀 I’m interested in games
+- 🌱 I’m currently learning program
+- 💞️ I’m looking to collaborate on love
+- 📫 How to reach me: in discord GRZ18💸#1101
